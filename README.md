@@ -13,7 +13,6 @@ I’m always eager to collaborate on projects involving cloud technologies, inte
 📬 How to reach me:
 
 Connect with me via tahaku0731@gmail.com Let’s discuss how we can collaborate on exciting tech projects!
-😄 Pronouns: He/Him
 
 ⚡ Fun Fact:
 
