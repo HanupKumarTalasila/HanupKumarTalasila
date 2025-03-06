@@ -12,7 +12,7 @@ Cloud Integration & Automation – Streamlining processes with state-of-the-art 
 I’m always eager to collaborate on projects involving cloud technologies, integration, security, and microservices. Let’s innovate and create the next big thing together!
 📬 How to reach me:
 
-Connect with me via [Email] or [LinkedIn]. Let’s discuss how we can collaborate on exciting tech projects!
+Connect with me via tahaku0731@gmail.com Let’s discuss how we can collaborate on exciting tech projects!
 😄 Pronouns: He/Him
 
 ⚡ Fun Fact:
